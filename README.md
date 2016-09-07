@@ -1,0 +1,1 @@
+# sree-responsive-coming-soon-template-file-and-license
